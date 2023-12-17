@@ -1,0 +1,1 @@
+# bakso-mania-nft
